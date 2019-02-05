@@ -1,2 +1,2 @@
-# automation_stucy
+# automation_stuy
 ㄲ ㅑ
